@@ -5,4 +5,4 @@ and I got three looks
 
 - 💞️    NerRD ...
 - 🌱    Plant Celebrity on Instagram
-- 📫    My TED talks on **How to write Abstract Poetry**
+- 📫    **Writing Abstract Poetry**
